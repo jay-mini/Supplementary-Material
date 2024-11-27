@@ -1,1 +1,5 @@
-
+![Page1](Response_to_Reviewer_RhAr_Page1.jpg)
+![Page2](Response_to_Reviewer_RhAr_Page2.jpg)
+![Page3](Response_to_Reviewer_RhAr_Page3.jpg)
+![Page4](Response_to_Reviewer_RhAr_Page4.jpg)
+![Page5](Response_to_Reviewer_RhAr_Page5.jpg)
