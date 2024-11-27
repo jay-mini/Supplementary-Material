@@ -1,3 +1,4 @@
 # Supplementary-Material
-![Page1](tHxD/Response_to_Reviewer_tHxD_Page1.jpg)
+Please download the PDF or view the supplementary material in the corresponding folder.
+
 
